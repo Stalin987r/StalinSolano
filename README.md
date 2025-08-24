@@ -1,0 +1,2 @@
+# StalinSolano
+Universidad Estatal Amazónica
